@@ -1,9 +1,9 @@
 hi :3 
 
 .
-names- meo, chloride, carter, thlkl
+names- romeo, chloride, scythurn (or just meo)
 
-pronouns- he/hym, xe/xem/xyr/xis, he/they, any
+pronouns- he (ominous reverb)
 
 .
 im not very smart lmao
